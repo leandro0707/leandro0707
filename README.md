@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @leandro0707 
+- 👀 Estou enteressado em trabalhar com mecanicas de carros
+- 🌱 I’m currently learning  canisobre engenharia meca
